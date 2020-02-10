@@ -1,0 +1,2 @@
+# rutegamer
+Baru pemula
